@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aprox-dev
-- 👀 I’m interested in photographie, video production, business in Africa
+- 👀 I’m interested in photographie, video production, business in Africa and I am a fan of Joomla! 
 - 🌱 I’m learning every day
-- 💞️ I’m looking to collaborate on Website Production
+- 💞️ I’m looking to collaborate on Website Production with Joomla and WordPress
 - 📫 How to reach me ...
 https://www.facebook.com/angelika.proxdampha 
 angelika.prox on skype 
