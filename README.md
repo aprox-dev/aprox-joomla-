@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @aprox-dev
+- 👋 Hi, I’m @aprox-dev you may find me as Angelika Prox-Dampha
 - 👀 I’m interested in photographie, video production, business in Africa and I am a fan of Joomla! 
-- 🌱 I’m learning every day
+- 🌱 I’m learning something new every day
 - 💞️ I’m looking to collaborate on Website Production with Joomla and WordPress
 - 📫 How to reach me ...
 https://www.facebook.com/angelika.proxdampha 
