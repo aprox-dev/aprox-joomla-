@@ -2,6 +2,12 @@
 - 👀 I’m interested in photographie, video production, business in Africa and I am a fan of Joomla! 
 - 🌱 I’m learning something new every day
 - 💞️ I’m looking to collaborate on Website Production with Joomla and WordPress
+
+My work in progress
+https://www.westafrikamagazin.de 
+
+
+
 - 📫 How to reach me ...
 https://www.facebook.com/angelika.proxdampha 
 angelika.prox on skype 
